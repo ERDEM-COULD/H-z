@@ -1,1 +1,1 @@
-# [Hız uzantısı indirme](https://mega.nz/folder/YJxyTQrQ#9S_gtVXymIXVNA1CF2UiGg)
+# [Hız uzantısı indirme](https://mega.nz/folder/ddRTDSZJ#HBlp9pbra9g82xb0X3ET1w)
